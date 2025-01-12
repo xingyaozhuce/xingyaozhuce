@@ -1,4 +1,6 @@
-## Hi there 👋
+## 如何注册杏耀平台？杏耀注册网址|杏耀总代理|杏耀平台
+
+<https://xingyaozhuce.github.io>
 
 <!--
 **xingyaozhuce/xingyaozhuce** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
